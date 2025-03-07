@@ -1,5 +1,5 @@
 feel it bubbling from below   
-hear it call, hear it call, hear it call to me... constantly.   
+hear it call, hear it call, hear it call to me.. constantly.   
 and hear the harmony only when it's harming me.
 
 <!--
