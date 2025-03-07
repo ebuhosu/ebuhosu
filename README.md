@@ -1,5 +1,5 @@
-hear it call, hear it call, hear it call to me.. *constantly*.   
-and hear the harmony only when it's harming me.
+if the body and the life were two things that we could divide,   
+i'd deliver up my shell to be filled with somebody else.
 
 
 
