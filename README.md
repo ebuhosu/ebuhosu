@@ -1,7 +1,6 @@
- hear it call, hear it call, hear it call to me.. constantly.   
+hear it call, hear it call, hear it call to me.. *constantly*.   
 and hear the harmony only when it's harming me.
 
-![image](https://github.com/user-attachments/assets/1d286394-5836-4588-be6b-72b95a460ad4)
 
 
 <!--
