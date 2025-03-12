@@ -1,5 +1,6 @@
-if the body and the life were two things that we could divide,   
-i'd deliver up my shell to be filled with somebody else.
+I regret ever implying that you could be better..   
+Didn't mean to empty your perfect body   
+And fill it with my passing will.   
 
 
 
