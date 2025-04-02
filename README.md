@@ -1,7 +1,5 @@
-I regret ever implying that you could be better..   
-Didn't mean to empty your perfect body   
-And fill it with my passing will.   
-
+the sunshine girl is sleeping, she falls and dreams alone   
+and me i am her dagger, too numb to feel her pain
 
 
 <!--
