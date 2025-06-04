@@ -1,4 +1,6 @@
-i dont even know why i have this acc anymore🎃
+i dont even know why i have this acc anymore
+
+![](https://media1.tenor.com/m/XpTrJ-r3trEAAAAC/every-day-host-koichi.gif)
 
 
 <!--
