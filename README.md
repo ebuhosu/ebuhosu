@@ -1,4 +1,4 @@
-even a bird that cannot fly, just for today, spreads its wings and lets them flutterrrr
+even a bird that cannot fly, just for today, spreads its wings and lets them flutterrrr   
 like a canary that has forgotten its song, lets forget even the unpleasent thingsss!!
 
 ![](https://media1.tenor.com/m/XpTrJ-r3trEAAAAC/every-day-host-koichi.gif)
